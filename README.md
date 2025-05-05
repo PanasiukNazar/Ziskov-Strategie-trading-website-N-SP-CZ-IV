@@ -1,0 +1,1 @@
+# Ziskov-Strategie-trading-website-N-SP-CZ-IV
